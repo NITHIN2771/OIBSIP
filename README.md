@@ -1,1 +1,1 @@
-my oasis infobyte internship may 2024
+internship  at oasis infobyte may 2024
